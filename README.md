@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @bellatrix006
-- 👀 IAM SAMP DEVLOPER /MAPPER 
+- 👀 IAM DEVLOPER
 - 🌱 I’m currently learning JAVA SCRIPT 
-- 💞️ I’m looking to collaborate on MY SERVER EXILED ROLEPLAY
+- 💞️ I’m looking to collaborate on MY SERVER : DREAM DEVLOPMENT
 - 📫 How to reach me CONTACT ME IN DC :jod_bella
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
